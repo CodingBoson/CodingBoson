@@ -47,6 +47,7 @@ I’m always open to:
 
 * Follow my work through this GitHub profile
 * Collaborations, questions, or ideas? Drop me a message!
+* Join [BosonWare](https://t.me/BosonWare) Telegram group
 
 ---
 
